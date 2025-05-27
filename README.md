@@ -4,3 +4,4 @@ Most projects are focused on my personal interests.
 
 Contact me at:
 Liampotter3825@gmail.com
+(https://www.linkedin.com/in/liam-potter-93846a217/)
